@@ -1,6 +1,5 @@
 # 💫 About Me:
-
-I'm currently studying  
+ 
 ![Profile Picture](/images/background-vu-tru.jpg)
 
 ## 🌐 Socials:
