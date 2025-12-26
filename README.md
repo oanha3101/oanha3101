@@ -27,7 +27,7 @@ Finding a tech internship for the upcoming semester.**
 
 - ⚡ Fun fact **An IT student who codes by day and treks by weekend.**
 
-- 👨‍💻 All of my projects are available at **[https://www.topcv.vn/xem-cv/AAoEAwVaUAYFAQABCFYFUQoDWlVWUgMOXlUFBAff1f](https://www.topcv.vn/xem-cv/AAoEAwVaUAYFAQABCFYFUQoDWlVWUgMOXlUFBAff1f)**
+- 👨‍💻 My CV **[https://www.topcv.vn/xem-cv/AAoEAwVaUAYFAQABCFYFUQoDWlVWUgMOXlUFBAff1f](https://www.topcv.vn/xem-cv/AAoEAwVaUAYFAQABCFYFUQoDWlVWUgMOXlUFBAff1f)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
